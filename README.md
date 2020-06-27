@@ -1,2 +1,2 @@
-# Algorytmy_2
+# Skrrt
  
